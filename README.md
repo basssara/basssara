@@ -1,1 +1,1 @@
-- 👋 Hi, I’m Basssara
+👋 Hi, I’m Basssara
